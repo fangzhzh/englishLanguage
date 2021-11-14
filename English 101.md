@@ -32,3 +32,5 @@
 - remember words: reading and writing doesn't mean can recognize when listening. Furthermore, To listen, recognize, translate and understand is a too long process to communicate.
 - watching TV Show:   too many slogans. 
 - speaking with foreigner(文曲星吵架法):  should be at a relatively intermediate level or else it's impossible to tell, listen and understand. For someone who know lots of words but cannot say and listen.
+
+## word storying
